@@ -1,1 +1,1 @@
-# dawid-wegrzyn-github
+Dawid, Praktykant, Grać w szachy
